@@ -1,1 +1,1 @@
-This is my comments and thoughts on Chinese education
+This is comments and thoughts on Chinese education system
