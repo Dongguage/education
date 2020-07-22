@@ -1,4 +1,4 @@
-This is comments and thoughts on Chinese education system. I made a ppt file expressing my thoughts. Trying to do something before I die with doing nothing to this socioty. A citizen is responsible for the city, to be a human, not to be a pig whose life is eat and sleep an play, that's big shame.
+This is comments and thoughts on Chinese education system. I made a ppt file expressing my thoughts. Trying to do something before I die with doing nothing to this socioty. A citizen is responsible for the city, to be a human, not to be a pig whose life is just eating and sleeping and playing, that's big shame.
 
 
 Key events trace below: 
