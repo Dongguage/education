@@ -7,3 +7,5 @@ July 15 2020，update. Today I contacted the gov, I feel frustrated because the 
 New version of ppt sent to the gov today, will call to notify this afternoon. Jul 17,2020
 
 July 20, 2020. The interface guy received the mail, but didn't read the ppt file yet, and planned to see me recently. 
+
+July 22, 2020. Today I made a date with the interface guy, will meet her at July 24 14:00.
