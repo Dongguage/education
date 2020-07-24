@@ -1,5 +1,6 @@
 This is comments and thoughts on Chinese education system. I made a ppt file expressing my thoughts. Trying to do something before I die with doing nothing to this socioty. A citizen is responsible for the city, to be a human, not to be a pig whose life is just eating and sleeping and playing, that's big shame.
 
+I update all my speech, mail content, here, after I was made "嫖娼“, everybody can understand what I did from here.
 
 Key events trace below: 
 
