@@ -21,3 +21,5 @@ At the end she invited her colleague who is in charge of hiring teachers. I had 
 we also discussed other topics, I shared my opinion that the society focus too much on the education qualifications, ignored too much in the real capabilities of candidates, this is the reason why lots of parents push their child to paticipate out-side-school training one after another. If the society can spend more cost of building a precise interview system process, some problems can be relieved, this should be a long term benefit for all of the society.
 
 I cannot attach the record because we discussed some sensitive topics, and I don't want any trouble for him or me. So, stay tuned for the next steps for the proposal of the 3-head protocol's deployment. Thanks for your eyes on this project, let's make Chinese education system better.
+
+July 24, 2020. I received a call from www.suomahua.org.cn, who is a charity focusing on education, I registerd my personal information onto their web, in order to do something to help those children who can't affoard education. The call record is attached.
