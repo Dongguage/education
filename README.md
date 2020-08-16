@@ -24,3 +24,5 @@ we also discussed other topics, I shared my opinion that the society focus too m
 I cannot attach the record because we discussed some sensitive topics, and I don't want any trouble for him or me. So, stay tuned for the next steps for the proposal of the 3-head protocol's deployment. Thanks for your eyes on this project, let's make Chinese education system better.
 
 July 24, 2020. I received a call from www.suomahua.org.cn, who is a charity focusing on education, I registerd my personal information onto their web, in order to do something to help those children who can't affoard education. The call record is attached.
+
+Aug 13，2020. I donated ￥20,000 to a charity org, 18,700 of it will be donated directly to 12 students, 10% of the fund will be used as operational expenses. And 1300 of it is donated to the org itself. Each year I will continue to donate, until I loose my job or fortune.
