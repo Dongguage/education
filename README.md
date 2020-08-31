@@ -26,3 +26,5 @@ I cannot attach the record because we discussed some sensitive topics, and I don
 July 24, 2020. I received a call from www.suomahua.org.cn, who is a charity focusing on education, I registerd my personal information onto their web, in order to do something to help those children who can't affoard education. The call record is attached.
 
 Aug 13，2020. I donated ￥20,000 to a charity org, 18,700 of it will be donated directly to 12 students, 10% of the fund will be used as operational expenses. And 1300 of it is donated to the org itself. Each year I will continue to donate, until I loose my job or fortune.
+
+Aug 31 2020. 我可能已经失败了。开学并没有收到任何三方协议签署。在微信里给教育局接口人留了言询问，一天没有回复。我可能高估了这个系统的能力，抱有了不切实际的幻想。
